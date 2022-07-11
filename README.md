@@ -1,4 +1,4 @@
-helo
+# helo
 
 it me burger ball
 
@@ -6,46 +6,15 @@ there is literally nothing here so here is [my twitter](https://twitter.com/burg
 
 So uhhhhhhhhhhhhhh
 
-Yeah i do a little music, maybe a bit of coding that's all i have to say so bye!!!!!
+I am part of Mother Team and Dysfunk, starting off as a low-teir fnf modder making random beats on FL Studio Mobile
+now i do all kinds of [funny things](https://youtu.be/_HoHfeQNJfA), so thats cool
 
+Yeah i do a little music, maybe a bit of coding. That's all I have to say so bye!
 
+# Music:
 
+There is no real way to listen to *all* my music, so here is where most of it is shared, most of them at the moment being for a project called "Friday Night Funkin': An Artist's Nightmare".
 
+[dysfunk yt (other people run this account)](https://youtube.com/channel/UCF2zCRBCnj8wmLlFqbw6Y4g)
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-haha made you look lmao
+[personal yt (dont post very much on it)](https://youtube.com/channel/UC-66ZR4sxAgN9jJz65AXPpQ)
