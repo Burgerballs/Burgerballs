@@ -18,3 +18,7 @@ There is no real way to listen to *all* my music, so here is where most of it is
 [dysfunk yt (other people run this account)](https://youtube.com/channel/UCF2zCRBCnj8wmLlFqbw6Y4g)
 
 [personal yt (dont post very much on it)](https://youtube.com/channel/UC-66ZR4sxAgN9jJz65AXPpQ)
+
+# silly words of the when I do them
+
+18/12/22: I wonder if Elon Musk is gonna kill me due to this being linked in my twitter lmao
