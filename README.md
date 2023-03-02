@@ -23,4 +23,4 @@ There is no real way to listen to *all* my music, so here is where most of it is
 
 # silly words of the when I do them
 
-18/12/22: I wonder if Elon Musk is gonna kill me due to this being linked in my twitter lmao
+2/3/23: It seems that springtrap is real now
